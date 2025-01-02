@@ -1,4 +1,4 @@
 ## Hi there 😄
-My name is berry
+My name is Berry
 
 
